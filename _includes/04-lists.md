@@ -1,1 +1,7 @@
-Replace this with a list of your favorite things.
+* The Ocean 
+* Yoga
+* Dog 
+* Coffe
+* Natur 
+* Sports 
+*
